@@ -1,5 +1,5 @@
-# Yo! SUP??
+# 1: Yo 3! SUP DAWGG??
 
-# My first github repo...Excited to begin!
+# 2: Yeah....It's my first github repo...Excited to begin!
 
-# hi i am fine!
+# 3: YO 1...I'm fine as hell!
